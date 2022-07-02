@@ -22,7 +22,7 @@ remembering all those stories\
 she wants to share\
 \
 the grueling pain\
-you feel in every cell\
+you've felt in every cell\
 second by second\
 as your chest hurts\
 and it’s difficult to breathe\
