@@ -10,7 +10,7 @@ a cloudy night\
 high from the rooftop\
 you can see\
 a tower with a blinking light\
-red. white. white. white.\
+red. white. red. white.\
 \
 she’s tipsy but not drunk\
 eyes locked at the blinking light\
